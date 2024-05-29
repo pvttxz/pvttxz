@@ -7,4 +7,5 @@ Meu nome é Paola Victória
 - Tenho um ótimo gosto musical
 - Amo miojo de tomate
 
+  ![](![image](https://github.com/pvttxz/pvttxz/assets/170943058/e5ab6520-2f6e-4f6b-8ff3-0c9b372d9c44)
   
