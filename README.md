@@ -6,6 +6,7 @@ Meu nome é Paola Victória
 - Amo jogar volei
 - Tenho um ótimo gosto musical
 - Amo miojo de tomate
+- Meus personagens favoritos são: Luffy, Sanji e Robin 🤍
 
   ![](https://media1.tenor.com/m/X6EgSnC5FbcAAAAC/sanji-sanji-vinsmoke.gif)
   
